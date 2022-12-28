@@ -1,4 +1,10 @@
-### Hi there 👋
+### Yo!
+Nerdy UCLA CS Undergrad Here
+Learning Algorithims!
+Prepping For Interviews With Some Projects
+Ask me about -
+Epic Seven - Hip Hop Dance - Genshin Impact - Anime/Manga - Fighting Games
+Reach me on discord or insta
 
 <!--
 **Ajzboss/Ajzboss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
