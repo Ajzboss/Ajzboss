@@ -1,7 +1,7 @@
 ### Yo!
-Nerdy UCLA CS Undergrad Here
-Learning Algorithims!
-Prepping For Interviews With Some Projects
+Nerdy UCLA CS Undergrad Here /n
+Learning Algorithims!/n
+Prepping For Interviews With Some Projects /n
 Ask me about -
 Epic Seven - Hip Hop Dance - Genshin Impact - Anime/Manga - Fighting Games
 Reach me on discord or insta
