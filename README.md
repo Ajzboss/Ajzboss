@@ -1,6 +1,7 @@
 ### Yo!
 
 Nerdy UCLA CS Undergrad Here 
+
 Learning Algorithims!
 
 Prepping For Interviews With Some Projects 
