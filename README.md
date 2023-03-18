@@ -8,7 +8,7 @@ Prepping For Interviews With Some Projects
 
 Ask me about -
 
-Epic Seven - Hip Hop Dance - Genshin Impact - Anime/Manga - Fighting Games
+Hip Hop Dance - Dungeons and Dragons - Anime/Manga - Fighting Games(Or Just Games)
 
 Reach me on discord or insta
 
