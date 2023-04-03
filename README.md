@@ -10,7 +10,6 @@ Ask me about -
 
 Hip Hop Dance - Dungeons and Dragons - Anime/Manga - Fighting Games(Or Just Games)
 
-Reach me on discord or insta
 
 <!--
 **Ajzboss/Ajzboss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
