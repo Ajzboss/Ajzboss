@@ -4,7 +4,7 @@ Nerdy UCLA CS Undergrad Here
 
 Learning Algorithims!
 
-Prepping For Interviews With Some Projects 
+Prolly trying to do some cool ML thing.
 
 Ask me about -
 
